@@ -29,7 +29,7 @@
 &nbsp;
 &nbsp;
 &nbsp;
-
+[![Ambler's github stats](https://github-readme-stats.amblerkr.vercel.app/api?username=amblerkr&show_icons=true&title_color=4bbffa&icon_color=4bbffa&text_color=000&bg_color=fff)](https://ambler.kr/)
 ![](https://visitor-badge.glitch.me/badge?page_id=amblerkr.visitor-badge)
 
 
