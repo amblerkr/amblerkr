@@ -22,7 +22,7 @@
 - E-mail : [ambler@ambler.kr](mailto:ambler@ambler.kr)
 - Twitter : [@amblerkr](https://twitter.com/amblerkr) 
 - Instagram : [@amblerkr](https://www.instagram.com/amblerkr/)
-- Facebook : [amblerkr](https://www.facebook.com/amblerkr)
+- Facebook : [amblerkr](https://www.facebook.com/Ambler.ENT)
 - YouTube : [Ambler](https://www.youtube.com/channel/UCRQEe3Hpk08M52GUsN9FPow)
 - SoundCloud : [amblerkr](https://soundcloud.com/amblerkr)
 
