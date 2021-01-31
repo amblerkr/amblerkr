@@ -30,6 +30,7 @@
 [![Ambler's github stats](https://github-readme-stats.amblerkr.vercel.app/api?username=amblerkr&show_icons=true&title_color=4bbffa&icon_color=4bbffa&text_color=000&bg_color=fff)](https://ambler.kr/)
 
 ![](https://komarev.com/ghpvc/?username=amblerkr&color=4bbffa)
+![](https://hit.yhype.me/github/profile?user_id=67187038)
 
 
 
