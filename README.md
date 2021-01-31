@@ -13,7 +13,7 @@ I'm preparing to start a business related to Culture and Arts. I want to make a 
 ## Founder of
 
 - Have fun alone! A community for people who Enjoy Culture Life, [SOLPL PARTY](http://about.solpl.party/) [🤘](https://go.solpl.party/twitter)  
-- Services that provide information on Culture and Arts, [Art Management](https://culture.solpl.party/) ​[:musical_note:](https://twitter.com/ArtManagementKR/)
+- Services that provide information on Culture and Arts, [MUBIZ](https://culture.solpl.party/) ​[:musical_note:](https://twitter.com/ArtManagementKR/)
 
 ## CONTACT
 
