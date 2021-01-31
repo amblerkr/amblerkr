@@ -4,10 +4,10 @@
 
 # Ambler
 
-**음악과 공연을 좋아하는 크리에이터 😎**
+**Music and Performance Lover 😎**
 
-기획자 겸 마케터. 팬마케팅과 팬매니지먼트 제공.  
-문화예술 관련 창업을 준비 중입니다. 아티스트, 소비자, 팬에게 도움이 되는 서비스를 만들고 싶습니다.  
+Product Manager | Marketer | Creator  
+I'm preparing to start a business related to Culture and Arts. I want to make a service that helps Artists, Consumers, and Fans.
 
 ## Founder of
 
