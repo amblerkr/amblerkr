@@ -6,7 +6,7 @@
 
 **Music and Performance Lover 😎**
 
-Product Manager | Marketer | Creator  
+Product Manager | Marketer | Creators  
 I'm preparing to start a business related to Culture and Arts. I want to make a service that helps Artists, Consumers, and Fans.
 
 ## Founder of
