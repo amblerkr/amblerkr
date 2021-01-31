@@ -6,13 +6,14 @@
 
 **Music and Performance Lover 😎**
 
-Product Manager | Marketer | Creators  
+Product Manager | Marketer | Creator  
+Fan Marketing, Fan Management, Community Moderator  
 I'm preparing to start a business related to Culture and Arts. I want to make a service that helps Artists, Consumers, and Fans.
 
 ## Founder of
 
-- 혼자서도 즐겁게! 솔플러 커뮤니티, [솔플파티](http://about.solpl.party/) [🤘](https://go.solpl.party/twitter) 를 운영하고 있습니다. 
-- 문화예술 관련 정보를 올리는 [예술경영](https://culture.solpl.party/) ​[:musical_note:](https://twitter.com/ArtManagementKR/) 를 운영하고 있습니다.
+- Have fun alone! A community for people who Enjoy Culture Life, [SOLPL PARTY](http://about.solpl.party/) [🤘](https://go.solpl.party/twitter)  
+- Services that provide information on Culture and Arts, [Art Management](https://culture.solpl.party/) ​[:musical_note:](https://twitter.com/ArtManagementKR/)
 
 ## CONTACT
 
